@@ -1,0 +1,2 @@
+# Bardock gaming
+Readme papa
